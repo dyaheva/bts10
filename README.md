@@ -1,6 +1,6 @@
-#  <a href="https://1311betst10.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
+#  <a href="https://1312betst10.com/">GİRİŞ İÇİN TIKLAYINIZ</a>
 
-#  <a href="https://1311betst10.com/">Bets10.com</a>
+#  <a href="https://1312betst10.com/">Bets10.com</a>
 
 
 <meta charset="UTF-8">
@@ -8,7 +8,7 @@
 </head>
 <body>
 
-<a href="https://1311betst10.com/"><img src="https://r.resimlink.com/PpxmSye.png"></a>
+<a href="https://1312betst10.com/"><img src="https://r.resimlink.com/PpxmSye.png"></a>
 </a>
 
 # Bets10 - Bets10 Giriş - Bets10 Güncel Giriş Adres
